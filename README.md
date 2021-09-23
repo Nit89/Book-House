@@ -1,2 +1,2 @@
 # Book-House
-Having a good time with your fellow intellectual
+Having a good time with your fellow intellectuals
